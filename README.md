@@ -1,4 +1,4 @@
-## 👾 ZZ3n / Jaehyun Park
+## ZZ3n / Jaehyun Park
 
 
 
